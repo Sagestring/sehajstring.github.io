@@ -1,4 +1,4 @@
-# sehajstring.github.io
+# sagestring.github.io
 ## My First Induction Program
 _its all my words of experience that I gainded in all these days of induction program_
 _so lets start from the beggining_
