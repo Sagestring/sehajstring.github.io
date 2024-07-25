@@ -70,6 +70,15 @@ here we go so in the above pic we can see many important skills that we should a
 **JASWINDER SINGH**
 great great great teacher , professor he gave us alot of valuble knowleade about how and why we study science, he was awarded shiksha ratan award on national level stage. He conducted many experiments by inviting some students on the stage and doing some cool stuff . like doing experiments like electrostatic charges , explaing why and what makes them to happen , showing the sounds traveling in two different medium can change the nodes of the vibrations that we produces and many more fun stuff . we enjoyed it alot . he also taugh us how to count the bones in the body . I can't find any pic on google so I have to edit it my self 
 ![WhatsApp Image 2024-07-20 at 23 36 17_88fce8e3](https://github.com/user-attachments/assets/f3400c90-9d22-4ede-a122-2f760c483248)
-
+#day 10 (22th of july)
+it was a normal day where our classes of uhv and chemistry were held , nothing speacial on this day just learning things that we already studied in our class 11 th and 12th . In our uhv class we were taught how to be in a good relationship between u and ur family or any other relatvies . trust , love and respect were some of the important key roles .after that comes the chemistry class , nothing jsut polishing our old theories .
+#DAY 11( 23rd of july)
+first was our maths lecture were we learned something that we already studies about , that was integration and its type like partial integration , intergratino by parts . our mam gave us some questions to solve and we all answered , no all but many of us did. So after that there was our chemistry class and today we all were taught some basic thins of organic chemistry , inorganic chemsitry and physical chemistry.after the classes we got a 1 hour break and after the break we have a auditorium lecture were we all learned about the importance of the enivornment and how to help it to imporive it after that . we learned what is the importance of the environment we all live in , even though we already knew it but noone takes care of anything . 
+![WhatsApp Image 2024-07-25 at 23 08 25_ef70570a](https://github.com/user-attachments/assets/afb931f5-ff2d-4667-9289-47f25f73c742)
+![WhatsApp Image 2024-07-25 at 23 08 24_07c5d9e4](https://github.com/user-attachments/assets/3e4cdaec-7ab7-4240-a629-452c2c2c7bdd)
+#DAY 12( 24th of july)
+today we all were in the auditorium , like our all the class were in the auditorium , like from 9 to 12:30 first session and after 1 hour break its till upto 3 pm yeah as far as i remember . So after that we attended all the audiotorium lecture and learned something new about how to be successful in our life even if we don't feel so , funny I know . The professors or you can say the motivational speakers were too good to be true. after that we were introduced to the cosmic club of our college
+![image](https://github.com/user-attachments/assets/fa77784d-0ad0-4def-be88-76729bde1c01)
+like there were many sectoins like apex, web wizards
 
 
