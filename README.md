@@ -80,5 +80,28 @@ first was our maths lecture were we learned something that we already studies ab
 today we all were in the auditorium , like our all the class were in the auditorium , like from 9 to 12:30 first session and after 1 hour break its till upto 3 pm yeah as far as i remember . So after that we attended all the audiotorium lecture and learned something new about how to be successful in our life even if we don't feel so , funny I know . The professors or you can say the motivational speakers were too good to be true. after that we were introduced to the cosmic club of our college
 ![image](https://github.com/user-attachments/assets/fa77784d-0ad0-4def-be88-76729bde1c01)
 like there were many sectoins like apex, web wizards
+#DAY 13( 25th of july)
+so today our lectures were auditorium , basic of chemistry and in the last we have a maths test 
+_DR. Arvind Dhingra -so in the auditorium a good and respected speaker came and give us the knowledge of our self and how to life a happy life_
+after session of 1 and a half hour we headed towards our chemistry class and we just revised what we learned in the previous class , sir gave us some questions and we answered them as much we could , I answered few of them but not all . after our chemistry class we got a 1 hour break for the lunch . after the lunch jwe all headed toward the maths test , we gave our test and after that we got free from the class . the test was overall moderate I did find some questions not solveable its cuz I need some revesion.
+#DAY 14 (26 OF JULY)
+_OK SO THIS WAS OUR LAST DAY OF THE INDUCTION PROGRAM AND WE GOT ALL THE LECTURE OF THE AUDITORIUM_
+![image](https://github.com/user-attachments/assets/053d20d9-28dd-42b9-96e1-64a409ac0093)
+In this session we learned about the mindfullness of the body and the self and we all learned how to control our breath and mind thoughts, they taught us 
+how what are the benefits of the meditation , they taught us about the differnt chakras in our body 
+![image](https://github.com/user-attachments/assets/9666b14e-f027-4f30-b0a5-9f4d555ab82b)
+after that we all closed our eyes for 15 min and in those 15 minutes we expericned the mindfullness of the silence that we created in that auditorium , the decorum was so peacefull . After all that our induction program was ended we all were done with all the stuff that happened in the past 2 weeks.
+some other program that happened in SUNDAY -
+![WhatsApp Image 2024-07-29 at 12 12 06_dbf454e7](https://github.com/user-attachments/assets/69fd04b5-65af-4542-a5d1-d3b2ae682132)
+![WhatsApp Image 2024-07-29 at 12 12 07_f3a5f659](https://github.com/user-attachments/assets/aa7f83cd-313c-487a-afde-1cba7f865608)
+In this session we learned about the floods that caused massive distruction of the crops fields in the last year , why they happen!and what caused them to happen , the conductors who were running that program awareness showed us some lists of serveral dams and the water quanitity dropped from them from time to time . Yes that was all that we learned about the awareness or you can say about that programm. 
+#CONCLUSION
+So here we are fromt the beggining to to the end of this inductoin program , I enjoyed alot and also learned alot . Now our semester will be starting on 30th of the july and in the above report of mine i didn't included the saturdays or the sundays cuz we were just doing some games and just hanging out with some friends and just doing some other activity.
+
+
+
+
+
+
 
 
